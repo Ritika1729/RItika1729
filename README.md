@@ -10,7 +10,7 @@
 
 - 💬 Ask me about **Html, CSS, JavaScript, Tailwind, Bootstrap**
 
-- 📫 How to reach me **Ritikasinghhdi1729@gmail.com**
+- 📫 How to reach 🪶 **Ritikasinghhdi1729@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
